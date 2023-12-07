@@ -1,6 +1,6 @@
 ### Hi there 👋
-🔭 好想睡覺
-
+🌱 就讀輔仁大學 統計與資訊學系
+🤔 I’m looking for help with ...
 
 
 <!--
